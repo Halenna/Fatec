@@ -1,2 +1,2 @@
-# FATEC :heart:
+# FATEC :heart: :heart:
 
